@@ -1,2 +1,0 @@
-# geetpurwar.github.io
-Pages
